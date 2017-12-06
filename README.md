@@ -1,5 +1,5 @@
-# steve-jobs-beat-tim-cook
-Let's see what if Steve Jobs is after Tim Cook?
+# Steve Jobs Beat Tim Cook
+Let's see what if Steve Jobs is after Tim Cook, how things will happen?
 
 
 | Tim Cook      | Steve Jobs  |
